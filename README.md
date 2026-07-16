@@ -15,7 +15,7 @@
 
 <p align="center">✶ 𝘿𝙤𝙤𝙢𝙗𝙧𝙞𝙣𝙜𝙚𝙧 𝙠𝙞𝙣𝙙𝙖 𝙝𝙤𝙩 𝙣𝙜𝙡</p>
 
-<img width="1500" height="300" alt="guh" src="https://github.com/user-attachments/assets/db94842f-c037-4c2b-b807-a3827d3e44aa" />
-
+<img width="1186" height="690" alt="image" src="https://github.com/user-attachments/assets/c7c7e147-2dec-4b33-b105-cb6afadb36f4" />
+<p align="center"> 𝙖𝙧𝙩 𝙗𝙮 𝙢𝙚
 
 
