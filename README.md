@@ -15,6 +15,8 @@
 
 <p align="center">✶ 𝘿𝙤𝙤𝙢𝙗𝙧𝙞𝙣𝙜𝙚𝙧 𝙠𝙞𝙣𝙙𝙖 𝙝𝙤𝙩 𝙣𝙜𝙡</p>
 
+<p align="center"> ALWAYS ask before adding me on Discord, any other social you're free to follow! </p> 
+
 <img width="1186" height="690" alt="image" src="https://github.com/user-attachments/assets/c7c7e147-2dec-4b33-b105-cb6afadb36f4" />
 <p align="center"> 𝙖𝙧𝙩 𝙗𝙮 𝙢𝙚
 
